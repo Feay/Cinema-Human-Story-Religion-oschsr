@@ -8,7 +8,7 @@ To Join as an "Buff of the holy story of life" of the OSCHSRs your task is simpl
 The Princess Bride, Amélie, 2001: A Space Odyssey, The Breakfast Club (1985) or Léon: The Professional (1994), Lain: The serial experiments.
 
 ****
- Adding more scriptures to this file and sharing it is the highest ordance of heaven. SO that humankind may find it's way back thru the nth gate of heavonly bliss as imagined on earth. These are the signs and tokens:
+ Adding more scriptures to the bookoflife.html in this repository. Clone zip and download. and sharing it is the highest ordance of heaven. SO that humankind may find it's way back thru the nth gate of heavonly bliss as imagined on earth. These are the signs and tokens:
 
 Say three times: <B><f16>PAY LAY ALE</B></f16>
 
